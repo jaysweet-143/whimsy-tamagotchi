@@ -1,5 +1,5 @@
 
-### Meet Fluff Puff 🐾✨ (COMING SOON)
+### Meet Fluff Puff 🐾✨ (COMING SOON!)
 *Chief Data Sorceress & Guardian of Cozy Systems 🪄*
 
 Whether you're just passing by or taking a quiet break from your own code, Fluff Puff is here to welcome you to her corner of the Hub. 
